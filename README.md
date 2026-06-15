@@ -169,7 +169,7 @@ I have worked on enterprise applications, AI-powered systems, chatbot platforms,
 
 ## 📫 Contact Me
 
-📧 **Email:** [jacobabuor@yahoo.com](mailto:jacobabuor@yahoo.com)
+📧 **Email:** [jacobogola414@gmail.com](mailto:jacobogola414@gmail.com)
 
 📱 **Phone:** +1 (662) 380-6880
 
